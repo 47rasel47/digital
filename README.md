@@ -1,1 +1,1 @@
-# digital website url:https://47rasel47.github.io/digital/
+# digital website URL:https://47rasel47.github.io/digital/
